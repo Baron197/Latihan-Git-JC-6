@@ -1,4 +1,4 @@
-# Kucing Berkelabu
+# Kucing Bertasbih
 
 __Merdekakan kucing__
 
